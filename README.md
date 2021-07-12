@@ -1,7 +1,3 @@
-<img align="right" alt="coding" width= "600" src="https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.quotespedia.org%2Fauthors%2Fj%2Fjohann-wolfgang-von-goethe%2Fknowing-is-not-enough-we-must-apply-willing-is-not-enough-we-must-do-johann-wolfgang-von-goethe%2F&psig=AOvVaw3TRYyARkdVCzie62UzkAtB&ust=1626207073336000&source=images&cd=vfe&ved=0CAoQjRxqFwoTCMjxutOr3vECFQAAAAAdAAAAABAD"
-
-
-
 Dr. D R Ramesh Babu  Director , Dayananda Sagar Research Foundation (DSRF) ,Vice-Principal, Professor & Head of the Department, Department of CSE, Dayananda Sagar College of Engineering, Bangalore, India.
 
 A skilled professional with 17 year experience in teaching and learning, academic administration, business development, research (novel approach, design and development) and industry. An inherent technologically savvy personality with analytical and problem solving skills. Excellent organizational and management skills, with team building and team leading capabilities comprising of researchers and academicians.
